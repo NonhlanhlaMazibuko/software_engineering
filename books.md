@@ -6,3 +6,4 @@ Thick as knives /n
 When the world ended and we were invaded /n
 The Vampire's promise /n
 The stranger
+Machine minds
